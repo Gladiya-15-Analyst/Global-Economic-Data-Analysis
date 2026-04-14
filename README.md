@@ -21,3 +21,4 @@ This project analyzes global economic indicators to identify growth patterns, ri
 
 ## 🚀 Author
 Senior Content Writer | Aspiring Data Analyst
+https://lnkd.in/gvajjHJs
